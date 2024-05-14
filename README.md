@@ -1,4 +1,4 @@
-### 😺 Hi everyone! I'm Alpercan. I'm 18 y/o and i'm an philosophy student in Ege University.
+### 😺 Hi everyone! I'm Alpercan. I'm 20 y/o and i'm an philosophy student in Ege University.
     🤖 i'm  into robotic systems, software development and philosophy&psychology in artificial intelligence.
     📖 I love workind with and research C#, Java, AI, Digital image processing and philosophy&psychology.
     ✨ I took part in the software department, PR and mechanical of my high school's robot team. ✨Greatest Off All Times 8092 in FRC Team✨(goat8092.com/IG:goat8092)
